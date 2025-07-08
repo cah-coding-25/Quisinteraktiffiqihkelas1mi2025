@@ -1,1 +1,0 @@
-# Quisinteraktiffiqihkelas1mi2025
